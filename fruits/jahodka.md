@@ -1,4 +1,6 @@
-# Toto je banan
+# Jahodka najvacsia	
+## Jahodka stredna	
+### Jahodka najmensia	
 
 
 bla bla bla bla task 6
