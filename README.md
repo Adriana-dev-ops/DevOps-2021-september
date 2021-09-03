@@ -1,6 +1,6 @@
 # DevOps-2021-september
 
-*toto je nas projekt<br>
+JAHODKAAAAAAAAAAAAAAAAAAAAAA<br>
 
 skusam<br>
 co to spravi <br>
